@@ -1,2 +1,1 @@
-# vonhumboldtco.com
 Coming soon!
